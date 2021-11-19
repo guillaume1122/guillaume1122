@@ -4,12 +4,12 @@
   
   
 2. Description du jeu
- 
+ https://i.ytimg.com/vi/LEJu63Y5oFQ/maxresdefault.jpgwidth="1032"height="580"
  
    
 
 3. Le créateur et information sur la création​
-  
+  https://i.insider.com/5b9007305c5e523b1e8b4d16?width=2400
   
  
 4. Comment jouer?
@@ -31,4 +31,4 @@
  
   
 Fin de la présentation
-src=(https://64.media.tumblr.com/ac43439c3de6eab49cd64b735d8dcdae/tumblr_pfmzl30kp41s2qsbbo5_400.gif)
+https://pa1.narvii.com/6557/423d469cb1fefc97cebdfc5ecda7884367f4c8fa_hq.gif
