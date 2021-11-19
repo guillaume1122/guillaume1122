@@ -8,22 +8,27 @@
  
    
 
-3. Le créateur et information sur la création​
+3. Le créateur et un peu d'information sur la création​
   https://i.insider.com/5b9007305c5e523b1e8b4d16?width=2400
   
  
 4. Comment jouer?
+5. 
   a) Jailbreak
+Jeu de braquage
   
   src=(https://robloxhackrobuxfree.com/wp-content/uploads/2019/03/roblox-jailbreak-hack.jpg)
   
-  
   b) Survive the disaster
+  Jeu de survie
   
   src="https://i.ytimg.com/vi/1qBByIeuzhE/maxresdefault_live.jpg" width="261" height="146"
+ https://i.ytimg.com/vi/hMyxtthnfi8/maxresdefault.jpg
+
   
   
   c) Bloxburg RP
+  Jeu de roleplay
   
  
  src="https://lh3.googleusercontent.com/proxy/hSVcmCqWDaSR_ctFNw-ZvbKH_vzdyoC1RWWZeOGcNEVYrmBC988aT55wuN3vkEGwJciKIDItYhxNwWJDU1YXpHo_pw=w1200-h630-p-k-no-nu" width="261" height="137"
